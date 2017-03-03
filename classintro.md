@@ -1,3 +1,4 @@
+![image](http://presslib.hollins.edu/wp-content/uploads/2016/07/Mint-Logo-e1467906125864.png)
 # Class Introduction
 
 Open Education Resources, or OERs, is a concept that's capture the imagination of faculty around the world who are looking to either find free and open resources to use with their students, or to contribute their own resources for other faculty to use.
